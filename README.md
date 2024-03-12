@@ -1,0 +1,1 @@
+# Right_side_pyramid
